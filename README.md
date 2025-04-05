@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tecnologia da Informação
 - 🌱 I’m currently learning Análise e desenvolvimento de Sistemas
 - 💞️ I’m looking to collaborate on tudo oque for necessário
-- 📫 How to reach me (+55) 21 9 71699809) Brazil
+- 📫 How to reach me (+55) 21971699809 Brazil
 - 😄 Pronouns: Ele
 - ⚡ Fun fact: "O saber não ocupa espaço, então vamos aprender.."
 
